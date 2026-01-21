@@ -2,3 +2,5 @@
 
 
 Armani Ankton anktonar@msu.edu
+
+Jaylyn Fransee Franseej@msu.edu
